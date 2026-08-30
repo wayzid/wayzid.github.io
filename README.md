@@ -1,5 +1,3 @@
-https://linktr.ee/wayzid
-
 WAY.ZID® Official Store + Founder Portfolio | Makkah
 Built solo in Makkah - 9.6M+ Views
 
